@@ -1,6 +1,6 @@
 # Kch-Bug-Bot
 </p>
 
-```Masih testing, klo ada bug/error langsung lapor owner, scnya encrypt "Sementara"```
+```WhatsApp Bot Bug by "MONSTER LALLU KCH"```
 
 [*✆ contact*](https://chat.whatsapp.com/GKPlDEfZwPbKqYmLz2Qalj)
